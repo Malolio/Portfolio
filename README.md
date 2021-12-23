@@ -74,3 +74,4 @@ ___После ухода из ВВС, Максим стал безработны
 ![image](https://sun9-8.userapi.com/impg/L2rp3mcR0B5mtVria4wQXrwqhVoLuoFNRGEDbw/FThIrtd-b8c.jpg?size=1522x2160&quality=96&sign=8334740781ba1d87b069ff144711d043&type=album)
 ![image](https://sun9-81.userapi.com/impg/kTfzgfjd7K4XGKZgqwt4hQlB4V7zwSlcEakgsg/As7CPBLd2HA.jpg?size=1568x2160&quality=96&sign=d5fe42104a0a833454b140933de83c2f&type=album)
 ![image](https://sun9-47.userapi.com/impg/3HNCRaBedwiF-vOPAX-Mw0zWRfobLaDgLhI2HA/qBPGa334ZHk.jpg?size=1526x2160&quality=96&sign=873a4949dc4d95eccfdd7f5771da24f9&type=album)
+![image](https://sun9-71.userapi.com/impg/uhbmMMp9HZyb2Syu5iv-gLuigGvDh4GD8ejbWg/Lt8C36LMqlA.jpg?size=764x540&quality=96&sign=452a32455c4ba9aed21c2183dfd088b4&type=album)
